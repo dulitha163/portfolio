@@ -14,6 +14,6 @@
 - [@gingercatofasia](https://youtube.com/@gingercatofasia)
 
 ## 💼 Freelance Profile
-- [My Fiverr]([https://www.fiverr.com/s/qD3lv1l)
+- [My Fiverr](https://www.fiverr.com/s/qD3lv1l)
   
 Stay tuned for more projects 🚀
