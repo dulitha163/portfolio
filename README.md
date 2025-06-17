@@ -13,4 +13,7 @@
 - [@heshft.bl7](https://youtube.com/@heshft.bl7)
 - [@gingercatofasia](https://youtube.com/@gingercatofasia)
 
+## 💼 Freelance Profile
+- [My Fiverr]([https://www.fiverr.com/s/qD3lv1l)
+  
 Stay tuned for more projects 🚀
